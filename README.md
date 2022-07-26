@@ -16,7 +16,7 @@
  
  <br>
  
-  ### Pra contato segue !
+  ### Segue contato !
  
 <div> 
  
